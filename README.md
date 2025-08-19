@@ -7,3 +7,5 @@ Machina Bristonica '25
 - whatsapp
 - blah
 - blah
+
+SYNTHS // SAMPLES // SEQUENCES // SFX // SHARING
